@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[ABHISHEK SINGH ](www.linkedin.com/in/abhishek-singh-986a38343)(LinkedIn)</a>
+- <a>[ABHISHEK SINGH ](https://www.linkedin.com/in/abhishek-singh-986a38343/)(LinkedIn)</a>
 - Email: vaibhavrajput9936@gmail.com
